@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @D9NIELCD
+- 👀 I’m interested in Programmation, Formula 1, Classical Music, Minecraft 
+- 🌱 I’m currently learning Programmation, Classical Music
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me: infinix12procardoso@gmail.com
